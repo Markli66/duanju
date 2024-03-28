@@ -4,6 +4,8 @@
 
 资源都在百度网盘中，目前有5T+正在持续更新。
 
+这里是在线文档：https://docs.qq.com/sheet/DSGZXb3V1RkVSeVh1?tab=BB08J2
+
 下面是具体的名字和链接。
 
 
